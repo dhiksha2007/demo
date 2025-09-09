@@ -8,6 +8,8 @@ My father name is mr.Selvaraj V.He is working as a super visor in private compan
 My mother name is mrs.Tamilselvi.She is homemaker.
 And we are the three members in our family.My father have completed 8 th std and my mother have completed 10 th std.
 I am the first graduate in my family.
+ROLE MODEL:
+My role model is ussian bolt because he didnt gave up when he fell and fixed the target from his lossen match and gave an record who can never beat.
 
 
 
