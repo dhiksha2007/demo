@@ -10,7 +10,8 @@ And we are the three members in our family.My father have completed 8 th std and
 I am the first graduate in my family.
 ROLE MODEL:
 My role model is ussian bolt because he didnt gave up when he fell and fixed the target from his lossen match and gave an record who can never beat.
-
+Your teaching is on to my level sir so i am comfortable with this speed sir .
+Be the same sir ,please dont change into very strict sir.
 
 
 
